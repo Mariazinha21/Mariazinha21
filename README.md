@@ -9,7 +9,7 @@
   ## você pode entra em contato comigo📩
   marialuizamartins601@gmail.com
 
-▪️  @heyy___mariah ▪️
+▪️  @heyy___mariahh ▪️
 
 
 ![image](https://github.com/user-attachments/assets/3543b0c9-d59d-45a7-b6fc-293ff71b5d94)
