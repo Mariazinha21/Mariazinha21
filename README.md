@@ -12,7 +12,8 @@
 ▪️  @heyy___mariah ▪️
 
 
-![image](https://github.com/user-attachments/assets/5b6b05c2-497e-4f0d-be8d-a614a4938ae1)
+![image](https://github.com/user-attachments/assets/84bad96c-87c9-4a9c-9d7e-f3b5c8adc96f)
+
 
 
   
